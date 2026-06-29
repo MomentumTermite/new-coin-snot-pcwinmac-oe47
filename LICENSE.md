@@ -1,4 +1,4 @@
-# 
+# Principal new coin sniper bot preajustes para Mac OS | Nativo new coin sniper bot preajustes para PC Windows. Con paneles personalizados y visualización de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
